@@ -1,6 +1,19 @@
 第一阶段
 
 
+eu.org
+
+
+账号
+
+EB291-FREE
+
+
+密码
+
+
+
+
 
 bzpt.eu.org
 
